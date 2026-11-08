@@ -1,1 +1,0 @@
-# ubt-kazakhstan-history
